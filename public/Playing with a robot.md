@@ -6,12 +6,11 @@ Verse
 -----
     They were so good togheter
     And they practiced every day
-    It was a great team
-    It was a great time
+    They were a great team
 
     Their speed was unmatched
     And their movements precise
-    No one can beat you
+    No one can beat you…
     when you're in love
 
     But now, look at the table
