@@ -10,7 +10,8 @@ Verse
 
     Their speed was unmatched
     And their movements precise
-    No one can beat you, when you're in love
+    No one could beat them
+    They were in love
 
     But now, look at the table
     How can that be?
