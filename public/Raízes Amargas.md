@@ -4,6 +4,7 @@ Raízes Amargas
 Fabricio C Zuardi
 -----------------
 
+
     A vida parece doce, nas fotos do bar
     Pessoas sorrindo e dançando, felizes
     Não há preocupação
@@ -59,3 +60,6 @@ Fabricio C Zuardi
     sob o abrigo da luz solar
     é dificil vencer a charada
     a validade é indeterminada
+
+
+![paratudo](http://www.imigrantesbebidas.com.br/bebida/images/products/full/5434_Paratudo__com_Jatoba_e_Raizes_900_ml_1.jpg)
