@@ -56,6 +56,6 @@ Fabricio C Zuardi
     ao longo da madrugada
 
     E na alvorada
-    ao abrigo da luz solar
+    sob o abrigo da luz solar
     é dificil vencer a charada
     a validade é indeterminada
