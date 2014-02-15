@@ -4,11 +4,11 @@ Raízes Amargas
 Fabricio C Zuardi
 -----------------
 
-    Nas fotos do bar a vida parece doce
-    Pessoas sorrindo e dançando
+    A vida parece doce, nas fotos do bar
+    Pessoas sorrindo e dançando, felizes
     Não há preocupação
 
-    Me incomodam muito a tosse,
+    Me incomodam muito essa tosse,
     as notícias, a televisão;
     Este piso moribundo
     e até mesmo este balcão
@@ -18,7 +18,7 @@ Fabricio C Zuardi
     estou preso
 
     De onde vem tanta amargura?
-    Mergulho numa investigação
+    Como é possível?
 
     Extrato de Jatobá,
     Quássia, Quina e Anis…
@@ -33,19 +33,19 @@ Fabricio C Zuardi
     Quássia, Quina e Anis
 
     A dor se dissolve
-    Ainda que por um segundo
+    Ainda que por um momento
     nas mordidas de uma fogazza
 
     Mas a lástima retorna
-    pois é fruto de uma profunda infusão de raízes…
+    pois é fruto de uma infusão de raízes…
     amargas
 
     Qual será afinal o mistério da raiz?
     É inútil procurar
 
-    Vou calar-me, ficar mudo
-    não encontrarei esta noite
-    uma cura, Paratudo
+    Vou calar-me, vou ficar mudo
+    não encontrarei esta noite uma cura
+    para tudo
 
     Extrato de Jatobá,
     Quássia, Quina e Anis…
