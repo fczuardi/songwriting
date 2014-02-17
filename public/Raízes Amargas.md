@@ -56,8 +56,8 @@ Fabricio C Zuardi
     O líquido escuro reflete o luar
     ao longo da madrugada
 
-    E na alvorada, em local seco
-    ao o abrigo da luz solar
+    E na alvorada
+    sob o abrigo da luz solar
     é dificil vencer a charada
     a validade é indeterminada
 
